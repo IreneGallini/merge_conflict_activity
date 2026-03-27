@@ -1,5 +1,10 @@
-# Chapter 3
-After a while, Grumpy spotted something shiny. It was a beautiful, golden key, lying on the soft moss. Grumpy picked it up, wondering where it could belong. His heart raced with excitement. What if it opened a secret door? With this thought in mind, he continued walking, looking for a door to match the key.
+# The chest
+“I found this key! Do you know where it might fit?” Grumpy replied, holding it up.
 
-He came across a wise old owl sitting on a branch. “Ho, ho! What do you have there, little gnome?” asked the owl.
+The owl thought for a moment. “There is an old treasure chest at the edge of the forest. Perhaps this key is for it.”
+
+Grumpy thanked the owl and hurried on. After what felt like hours of walking, he finally reached the old chest. It was large and covered with vines, looking very mysterious. Grumpy could hardly believe his eyes.
+
+He took a deep breath and inserted the golden key into the chest's lock. He turned it slowly. With a loud click, the chest popped open. Inside, it sparkled with gold coins, shiny jewels, and mysterious trinkets. Jolly’s eyes widened with joy.
+
 
