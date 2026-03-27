@@ -1,4 +1,4 @@
-# Chapter 3
+# The chest
 “I found this key! Do you know where it might fit?” Jolly replied, holding it up.
 
 The owl thought for a moment. “There is an old treasure chest at the edge of the forest. Perhaps this key is for it.”
